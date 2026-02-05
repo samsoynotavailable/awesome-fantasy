@@ -678,6 +678,30 @@ This book stands up to a reread, and is a nice example of Neil Gaiman's ability 
 >
 > Scary, gripping and deeply unsettling, AMERICAN GODS takes a long, hard look into the soul of America. You'll be surprised by what and who it finds there...
 
+#### [Dungeon Crawler Carl](https://www.goodreads.com/book/show/211721806-dungeon-crawler-carl) _by [Matt Dinniman](https://www.goodreads.com/author/show/999015.Matt_Dinniman)_ [4.49]
+
+Amazing book. I picked it up and I can't put it down. Great humor, plot and writing. One of my favorite books of all time. - [@BrainfrickKing](https://github.com/BrainfrickKing)
+
+Books(As of writing this review I am reading book 4:
+
+ - [Carl's Doomsday Scenario](https://www.goodreads.com/book/show/56377548-carl-s-doomsday-scenario)
+ - [The Dungeon Anarchist's Cookbook](https://www.goodreads.com/book/show/57001971-the-dungeon-anarchist-s-cookbook)
+ - [The Gate of Feral Gods](https://www.goodreads.com/book/show/57905101-the-gate-of-the-feral-gods)
+ - [The Butcher's Masquerade](https://www.goodreads.com/book/show/60233239-the-butcher-s-masquerade)
+ - [the Eye of the Bedlam Bride](https://www.goodreads.com/book/show/125887685-the-eye-of-the-bedlam-bride)
+ - [This Inevitable Ruin](https://www.goodreads.com/book/show/216017751-this-inevitable-ruin)
+ - [A Parade of Horribles](https://www.goodreads.com/book/show/228928465-a-parade-of-horribles) _forthcoming_
+
+> The apocalypse will be televised!
+> 
+> A man. His ex-girlfriend's cat. A sadistic game show unlike anything in the universe: a dungeon crawl where survival depends on killing your prey in the most entertaining way possible.
+> 
+> In a flash, every human-erected construction on Earth—from Buckingham Palace to the tiniest of sheds—collapses in a heap, sinking into the ground.
+> 
+> The buildings and all the people inside have all been atomized and transformed into the dungeon: an 18-level labyrinth filled with traps, monsters, and loot. A dungeon so enormous, it circles the entire globe.
+> 
+> Only a few dare venture inside. But once you're in, you can't get out. And what's worse, each level has a time limit. You have but days to find a staircase to the next level down, or it's game over. In this game, it's not about your strength or your dexterity. It's about your followers, your views. Your clout. It's about building an audience and killing those goblins with style.
+
 #### [The Book of Knights](https://www.goodreads.com/en/book/show/1583772) _by [Yves Menard](https://en.wikipedia.org/wiki/Yves_Meynard)_ [3.94]
 
 An outstanding book. I was blown away by how exceptionally other-worldly this book felt - it reminded me of Jack Vance and Gene Wolfe, which is how I found it. One of the quotes in the book is used as an opener in Wolfe's _The Wizard Knight_. The book follows a young boy as he seeks to become a knight, inspired by his reading a book titled "The Book of Knights". I can't recommend this book enough. - [@RichardLitt](https://github.com/RichardLitt)
